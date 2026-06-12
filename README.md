@@ -1,4 +1,4 @@
-🌧- Dni is on my prns.cc I think, go check out my links for other stuff about me! >o<
+🌧- Dni is on my strawpags I think, go check out my links for other stuff about me! >o<
 
 
 # 🎧♪ Mimix is listening to... 
@@ -10,6 +10,5 @@ Top favorite Artists rn: 🪲🎸 The Beatles & Her's! 💐♬
 
 -If you know what's right, Her's
 
-By the way, if you met me in my bayani skin, please dni if you're in the house of Puso fandom, I don't identify with bayani's character, and I don't want the show to have a fandom.
 
-Dm me on discord if you wanna BMF! My dc user is y0urm0thar, just like on every platform I'm on ! ( ˘ ³˘)♥︎
+Dm me on discord if you wanna BMF! My dc user is y0urm0thar, just like on every platform I'm on, usually ! ( ˘ ³˘)♥︎
