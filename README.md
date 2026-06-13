@@ -12,7 +12,3 @@ Top favorite Artists rn: 🪲🎸 The Beatles & Her's! 💐♬
 
 
 Dm me on discord if you wanna BMF! My dc user is y0urm0thar, just like on every platform I'm on, usually ! ( ˘ ³˘)♥︎
-
-
-https://cdn.phototourl.com/free/2026-06-13-854c47e0-7704-4b41-9257-6418f0dc7415.png
-jfk #1 fan this is how the jfk fanart is going whenever u see it lalala i hope the link works
