@@ -1,4 +1,4 @@
-🌧- Dni is on my strawpags I think, go check out my links for other stuff about me! >o<
+🌧- Dni is on my strawpage I think, go check out my links for other stuff about me! >o<
 
 
 # 🎧♪ Mimix is listening to... 
@@ -6,9 +6,9 @@
 
 Top favorite Artists rn: 🪲🎸 The Beatles & Her's! 💐♬
 
-,, I'll love you 'til the end, no matter! ''
+,, Lalala ''
 
--If you know what's right, Her's
+--me
 
 
 Dm me on discord if you wanna BMF! My dc user is y0urm0thar, just like on every platform I'm on, usually ! ( ˘ ³˘)♥︎
